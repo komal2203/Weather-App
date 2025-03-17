@@ -57,6 +57,6 @@ This project is licensed under the **MIT License**.
 
 ## 📬 Contact  
 For any queries, feel free to reach out:  
-📧 **Email:** [komalmeena170312@gmail.com](mailto:komalmeena170312@gmail.com)  
+📧 **Email:** [komalmeena220303@gmail.com](mailto:komalmeena220303@gmail.com)  
 
 Let me know if you'd like any modifications! 🚀
